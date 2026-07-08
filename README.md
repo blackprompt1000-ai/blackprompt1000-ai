@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Granth!
 
-🎓 **B.Tech 1st Semester Student** | 💻 **Aspiring Developer & Tech Enthusiast**
+🎓 **B.Tech 3st Semester Student** | 💻 **Aspiring Developer & Tech Enthusiast**
 
 ---
 
